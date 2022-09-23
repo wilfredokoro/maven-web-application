@@ -14,7 +14,7 @@
 	Landmark Technologies is a software development company. 
 	Class26 will run from October 30, 2021.
 	The shout of the King Jesus is in Lord. HE IS OUR SUCCESS ACCESS KEY
-	Come let's worship the lord together</h2>
+	Come let's worship the Lord together</h2>
 <hr>
 <div style="text-align: center;">
 	<span>
