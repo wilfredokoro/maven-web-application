@@ -22,7 +22,7 @@
 	</span>
 	<span style="font-weight: bold;">
 		Landmark Technology, 
-		Toronto, Ontario, Canada
+		Houston, Texas and all it environs
 		+1 437 215 2483,
 		mylandmarktech@gmail.com
 		<br>
